@@ -15,7 +15,16 @@ FREE (HARD) 21 Savage x Southside Type Beat - 13th  DARK  Free Type Beat 2019
 ## Lyrics
 
 ```
+aye aye yeaaah
+ayeeeeeeeeeeee ya eeee
+gotten awesome ya ya ya
+hitech crime connected
+skr skr skr
 
+get all saysay ya
+get all saysay
+get all saysay ya
+get all saysay ya
 
 ```
 
